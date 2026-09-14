@@ -212,3 +212,6 @@ Dungeons and Dragons Online is available as a **full free version** with all fea
 ---
 
 Don’t miss out on the adventure! [Download Dungeons and Dragons Online free](https://www.softyne.com/dungeons-and-dragons-online) today and start your epic journey!
+
+---
+**Last updated:** 2026-09-14 18:16:35 UTC
